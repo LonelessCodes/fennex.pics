@@ -1,4 +1,4 @@
-﻿# fuck you Elon
+﻿# fuck you elon
 
 here's a random fucking fox, you're welcome.
 
